@@ -1,1 +1,1 @@
-Stone bridges and culverts were constructed on some roads in the 18th century to facilitate river crossings and improve drainage, enhancing travel safety and reliability.
+The advent of mass-produced automobiles in the 20th century led to increased demand for parking infrastructure, including parking lots, garages, and meters, to accommodate vehicles in urban and suburban areas.
