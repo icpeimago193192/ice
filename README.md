@@ -1,1 +1,1 @@
-The advent of mass-produced automobiles in the 20th century led to increased demand for parking infrastructure, including parking lots, garages, and meters, to accommodate vehicles in urban and suburban areas.
+The advent of bicycle travel in the late 19th century popularized the demand for smoother, paved roads, leading to increased investment in road infrastructure in urban and suburban areas.
