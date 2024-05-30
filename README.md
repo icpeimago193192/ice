@@ -1,1 +1,1 @@
-The development of standardized road signage and traffic regulations in the 19th century improved safety and navigation for travelers, reducing accidents and congestion on busy roads.
+The development of the interstate highway system in the United States, initiated by President Dwight D. Eisenhower in the 1950s, revolutionized long-distance travel and commerce, connecting cities and regions across the country.
