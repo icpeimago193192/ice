@@ -1,1 +1,1 @@
-The introduction of the Ford Model T in 1908 revolutionized personal transportation, leading to increased demand for roads and highways to accommodate the growing number of automobiles on the road.
+Road construction and maintenance were often carried out by local communities, with laborers using simple tools like shovels, picks, and wheelbarrows to repair and improve roads.
